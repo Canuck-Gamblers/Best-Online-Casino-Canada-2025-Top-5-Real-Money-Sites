@@ -4,8 +4,6 @@ Hey there fellow Canucks! Looking for top-notch casino sites in Canada this year
 
 Our team has put in some serious effort testing dozens of Canadian online casino sites to bring you this genuine guide to the best online casinos Canada has to offer in 2025. We've deposited our own hard-earned loonies, played hundreds of casino games, and processed withdrawals to ensure our recommendations give you the best possible casino gaming experience.
 
-> "Finding a reliable online casino in Canada can make all the difference between an enjoyable gaming session and a frustrating experience. Our goal is to help Canadian players make informed decisions." - Check out our [detailed video review](https://www.youtube.com/watch?v=CanuckGambleHub) of these top casinos for more insights.
-
 ## TL;DR: Top 5 Online Casinos in Canada 2025 Comparison
 
 | Rank | Casino | Rating | Welcome Bonus | Payout Speed | Game Count | Best For |

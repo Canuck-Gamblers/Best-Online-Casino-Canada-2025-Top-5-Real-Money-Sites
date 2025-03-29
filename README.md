@@ -4,6 +4,8 @@ Hey there fellow Canucks! Looking for top-notch casino sites in Canada this year
 
 Our team has put in some serious effort testing dozens of casino sites to bring you this genuine guide to the best online casinos in Canada 2025. We've deposited our own hard-earned loonies, played hundreds of games, and processed withdrawals to ensure our casino review gives you the best possible experience.
 
+> "Finding a reliable casino online can make all the difference between an enjoyable gaming session and a frustrating experience. Our goal is to help Canadian players make informed decisions." - Check out our [detailed video review](https://www.youtube.com/watch?v=CanuckGambleHub) of these top casinos for more insights.
+
 ## TL;DR: Top 5 Online Casinos in Canada 2025 Comparison
 
 | Rank | Casino | Rating | Welcome Bonus | Payout Speed | Game Count | Best For |
@@ -36,11 +38,11 @@ After countless hours testing, here are the top three casinos and others for 202
 
 SPINSY has earned its spot as one of the best online casinos in Canada by offering a comprehensive gaming experience focused on player satisfaction. This casino combines a massive game library with top-notch customer service and generous bonuses.
 
-![Spinsy Casino](https://i.imgur.com/qF7vpbm.png)
+![Spinsy Casino](https://i.imgur.com/aLbWhaV.png)
 
 ### Why SPINSY Tops Our List:
 
-- **Massive Gaming Collection**: Over 10,000 casino games from 111 game providers
+- **Massive Gaming Collection**: Over 10,000 online casino games from 111 game providers
 - **Canadian-Friendly Payment Options**: 46 different banking methods including Interac and iDebit
 - **Excellent Bonus System**: High-value welcome bonus with ongoing promotions for loyal players
 - **User-Friendly Interface**: Even your tech-challenged uncle could navigate this casino site with ease
@@ -58,7 +60,7 @@ For players seeking a reliable casino with exceptional game variety and player s
 
 WINNA has quickly made a name for itself as one of the top Canadian online casino sites, specializing in progressive jackpots and daily tournaments. This casino site offers Canadians a unique gaming experience with exclusive titles and generous casino bonus options.
 
-![Winna Casino](https://i.imgur.com/lKcjRy7.png)
+![Winna Casino](https://i.imgur.com/bTdiVp9.png)
 
 ### What Makes WINNA Special:
 
@@ -82,7 +84,7 @@ For players who enjoy both casino games and sports betting, WINNA offers a seaml
 
 JACKBIT completes our top three best online casinos available to Canadian players, offering a crypto-focused gaming experience that's changing how many enthusiasts play. This innovative online casino has gained popularity for its lightning-fast transactions and extensive game library.
 
-![Jackbit Casino](https://i.imgur.com/sXds9EI.png)
+![Jackbit Casino](https://i.imgur.com/1i2joYi.png)
 
 ### JACKBIT Key Features:
 
@@ -106,7 +108,7 @@ Customer support is available 24/7 through live chat, providing responsive assis
 
 VEGASINO has established itself as one of the top Canadian online casino options, offering an exceptional blend of game variety, user experience, and generous bonuses. This premier casino site provides Canadians with a seamless gaming journey from registration to withdrawal.
 
-![Vegasino Casino](https://i.imgur.com/9xumWKx.png)
+![Vegasino Casino](https://i.imgur.com/VESdSEL.png)
 
 ### Why VEGASINO Stands Out:
 
@@ -128,7 +130,7 @@ For players looking for one of the best online casinos Canada with a perfect ble
 
 7BIT rounds out our list of the top Canadian online casinos, offering a uniquely themed gaming experience with a retro, 80s-inspired design. This casino combines nostalgic visuals with substantial game variety and compelling promotions.
 
-![7Bit Casino](https://i.imgur.com/R5sciRN.png)
+![7Bit Casino](https://i.imgur.com/hN17Bk9.png)
 
 ### 7BIT Key Features:
 
